@@ -67,3 +67,23 @@ education research reveals about note-taking. Specifically,this
 review discussesthe cognitivemechanisms behind note-taking;
 he has briefly summarized some suggestions below for
 students and instructors to consider regarding note-taking
+
+
+
+![image](https://github.com/user-attachments/assets/51638e8e-7ea2-44cd-972a-55e6386776a4)
+
+![image](https://github.com/user-attachments/assets/bd5c4990-8653-4037-ac60-16974adc5862)
+
+
+![image](https://github.com/user-attachments/assets/4cf7dfaf-e829-43f5-aa6b-f5da6dac7d46)
+
+
+![image](https://github.com/user-attachments/assets/78e2abd0-fd22-4c55-b8a5-efb546b64d39
+
+
+![image](https://github.com/user-attachments/assets/e2e0c57c-abfe-4903-afcf-77ac60cb0247)
+
+
+
+
+
